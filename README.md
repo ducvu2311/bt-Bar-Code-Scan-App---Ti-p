@@ -7,7 +7,7 @@ Hoàng Đức Vũ - 22810310362
 
 
 
-![image](https://github.com/user-attachments/assets/9b20f20f-f250-45e0-a948-c1591cd254ff)
+![image](https://github.com/user-attachments/assets/e8013f0b-b09b-44fa-914d-b53b85ba79c8)
 
 
 
